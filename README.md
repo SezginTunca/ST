@@ -1,1 +1,0 @@
-# Sezgin-Tunca
